@@ -221,4 +221,4 @@ Modern Farm is the **full free version** of the game, providing access to all fe
 Download Modern Farm today and start your journey into the world of farming! Enjoy the complete experience with all features unlocked and ready for you.
 
 ---
-**Last updated:** 2026-09-23 05:37:39 UTC
+**Last updated:** 2026-09-23 11:02:15 UTC
